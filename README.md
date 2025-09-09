@@ -13,6 +13,6 @@ Profile README for Aryan Singh — The Helpers
 - Learn, experiment, and solve problems with tech  
 
 ### 📫 Connect with Me
-- Email: your-email@example.com  
-- LinkedIn: https://www.linkedin.com/in/your-link  
-- Calendly: https://calendly.com/your-calendly-link  
+- Email: aryanjune24@gmail.com 
+- LinkedIn: www.linkedin.com/in/aryan-singh-3b6a28359
+  
